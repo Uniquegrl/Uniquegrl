@@ -1,10 +1,10 @@
-- 👋 Hi, I’m @Uniquegrl aka Hunnygrl
-- 👀 I’m interested in ...FMH
-- 🌱 I’m currently learning ...meaning and losing.
-- 💞️ I’m looking to collaborate on ...memories.
-- 📫 How to reach me ...bestbrashac1fdffff8.link,twitter.com/u_hunnygrl,github.com/Uniquegrl,stackoverflow.com/users/27998731/hunnygrl
-- 😄 Pronouns: ...Ronilynn Chavez,Mrs.Chavez(her,hers)
-- ⚡ Fun fact: ...my ❤. 
+- 👋 Hi, I’m @Uniquegrl(hunnygrl) 
+- 👀 I’m interested in ...testing games,sharing and advertising as well as researching and learning.
+- 🌱 I’m currently learning ... builds, programs and accounts. 
+- 💞️ I’m looking to collaborate on ... the network.
+- 📫 How to reach me ...bestbrashac1fdffff8.link, twitter.com/u_hunnygrl, github.com/Uniquegrl, stackoverflow.com/users/27998731/hunnygrl 
+- 😄 Pronouns: ...Ronilynn (Roni) Chavez,Mrs.Chavez(her,hers)
+- ⚡ Fun fact: ... i'm very determined to succeed and Im very understanding.
 
 <!---
 Uniquegrl/Uniquegrl is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
